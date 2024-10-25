@@ -1,6 +1,6 @@
- Hi, I’m @QwErTy10px
- I’m interested in gamde
-  How to reach me insta(nivedh_drivedh)
+ Hi, I’m @QwErTy10px 
+ I’m interested in gamdev
+ How to reach me insta(nivedh_drivedh)
 
 
 
